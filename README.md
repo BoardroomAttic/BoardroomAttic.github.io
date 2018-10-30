@@ -1,2 +1,1 @@
-# BoardroomAttic.github.io
-die mother
+whoever reads this has the big homogay
